@@ -1,1 +1,0 @@
-# metehanozkande.github.io
